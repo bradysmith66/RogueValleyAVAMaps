@@ -33,7 +33,7 @@ Map Coming Soon
 
 #### Pleasant View
 208 Pleasant View Road, Talent, OR
-
+Map Coming Soon
 
 #### Fortmiller
 1000 Morey Road, Talent, OR
@@ -41,6 +41,7 @@ Map Coming Soon
 
 #### Savonne Ranch (Cedars)
 7148 Wagner Creek Road, Talent, OR
+Map Coming Soon
 
 #### Sophie (Smith South)
 1462 Beeson Lane, Talent, OR
@@ -56,21 +57,27 @@ Map Coming Soon
 
 #### Sundown
 3912 Cordelia Way, Medford, OR
+Map Coming Soon
 
 #### Lakeside
 3300 West Hills Terrace, Medford, OR
+Map Coming Soon
 
 #### Griffin Creek
 2800 Griffen Creek Road, Medford, OR
+Map Coming Soon
 
 #### Craterview
 4610 Bellinger Lane, Medford, OR
+Map Coming Soon
 
 #### Panner-Hanson
 1700 Arnold Lane, Medford, OR
+Map Coming Soon
 
 #### Anya
 1462 Beeson Lane, Talent, OR
+Map Coming Soon
 
 ### Rellik Winery
 970 Old Stage Rd, Central Point, OR 97502
