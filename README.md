@@ -18,6 +18,7 @@ I try my best to get the best information on vineyards in the area. If there is 
 Map Coming Soon
 
 ### Del Rio Vineyards
+Map coming soon
 
 ### Hummingbird Estates
 1677 Old Stage Rd, Central Point, OR 97502
@@ -28,15 +29,30 @@ Map Coming Soon
 ### Quail Run Vineyards
 
 #### Quail Run Vineyard
-#### Pleasant View
-#### Fortmiller
-#### Savonne Ranch (Cedars)
-#### Sophie (Smith South)
-#### Bayliss
+2700 Quail Run Road, Talent, OR
 
+#### Pleasant View
+208 Pleasant View Road, Talent, OR
+
+
+#### Fortmiller
+1000 Morey Road, Talent, OR
+Map Coming Soon
+
+#### Savonne Ranch (Cedars)
+7148 Wagner Creek Road, Talent, OR
+
+#### Sophie (Smith South)
+1462 Beeson Lane, Talent, OR
+Map Coming Soon
+
+#### Bayliss
+7224 Wagner Creek Road, Talent, OR
+Map Coming Soon
 
 #### Folda
 699 Anderson Creek Road, Talent, OR
+Map Coming Soon
 
 #### Sundown
 3912 Cordelia Way, Medford, OR
