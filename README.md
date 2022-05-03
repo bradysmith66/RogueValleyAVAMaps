@@ -24,6 +24,9 @@ Map Coming Soon
 
 
 ### Del Rio Vineyards
+
+#### Birdsey Creek Vineyard
+3791 ROGUE RIVER HWY, Rogue River OR
 Map coming soon
 
 ### Dos Mariposas
@@ -40,7 +43,9 @@ Map Coming Soon
 1677 Old Stage Rd, Central Point, OR 97502
 Map Coming Soon
 
-### Kriselle Cellars
+### Paschal Winery and Vineyard
+1122 Suncrest Rd, Talent, OR 97540
+Map Coming Soon
 
 ### Pepplestone Cellars
 map Coming Soon
@@ -102,4 +107,13 @@ Map Coming Soon
 ### Rellik Winery
 970 Old Stage Rd, Central Point, OR 97502
 Map Comming Soon
+
+### RoxyAnn Winery
+3283 Hillcrest Rd, Medford, OR 97504
+Map Coming Soon
+
+### Stoneriver Vineyards
+1670 Pioneer Rd, Talent, OR 97540
+Map Coming Soon
+
 
